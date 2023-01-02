@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MasoudMaani
+- 👀 I’m interested in art, sience, code, language, music, etc, etc, etc
+- 🌱 Currently learning EVERYTHING, but mostly Machine Learning.
+- 📫 You can reach me and all my links via https://linktr.ee/masoudmaani
+- 👋 Cheerio peeps!
